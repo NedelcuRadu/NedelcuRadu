@@ -1,3 +1,3 @@
 # Hi there 👋 - Here's my CV
 
-![Page1](NedelcuRadu-updated_page-0001)
+![Page1](NedelcuRadu-updated_page-0001.jpg)
